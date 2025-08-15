@@ -57,3 +57,26 @@ Strengthen Self-Reflection: To engage in a process of self-exploration, verifyin
 Become Socially and Environmentally Responsible: To become more aware of their surroundings and their commitment to sustainable solutions, while keeping human relationships and nature in mind.
 Cultivate a Commitment to Action: To develop the courage and commitment to act on their understanding and live in accordance with these values.
 The course is typically taught through interactive discussions and practice sessions rather than a set of sermons or dogmatic rules. The goal is to facilitate a change in the student's worldview, moving beyond mere information transfer to a more qualitative transformation in their consciousness.
+
+# Day 4
+## 5 August 2025
+First lecture by Mr.Dr.Gautam murri D-4 ME on Motor sport he said Motorsport, also known as motor sport, is a broad term for a group of competitive events that primarily involve the use of motorized vehicles. It encompasses a wide variety of disciplines, from high-speed racing on purpose-built circuits to off-road challenges and precision driving and then said its history that,The origins of motorsport can be traced back to the late 19th century. One of the first recognized competitive events was a "horseless carriage" contest organized by a French newspaper in 1894, featuring a road race from Paris to Rouen. Early motorsport was a way to showcase the capabilities of new automobiles. Over time, the sport became more organized, with the first Grand Prix race held in 1906 and the establishment of governing bodies to regulate competitions. Then,
+Types of Motorsport
+Motorsport is incredibly diverse and can be categorized in several ways, including by the type of vehicle used, the terrain, or the competition format. Some of the most popular types include:
+Open-Wheel Racing: This is a class of racing where the wheels are not enclosed by the bodywork. The cars are typically purpose-built for racing. The most famous example is Formula 1 (F1), the highest class of single-seater auto racing in the world. Other examples include IndyCar and Formula E (for electric cars).
+Sports Car Racing: This involves racing with production-based grand touring (GT) cars and racing prototypes. Endurance racing, like the 24 Hours of Le Mans, is a key part of this category, testing the limits of a car's and a driver's stamina over long periods.
+Stock Car Racing: Originally, this used "stock" production cars. Today, the vehicles are highly modified but maintain the silhouette of a production car. NASCAR is the most prominent series in this category, particularly in the United States.
+Rallying: This is a form of racing on public or private roads with modified production or specially built cars. Competitors race between set checkpoints, often on challenging and unpaved terrain. The World Rally Championship (WRC) and the Dakar Rally are well-known examples.
+Motorcycle Racing: This includes various disciplines like MotoGP (the motorcycle equivalent of F1), motocross (off-road racing on rugged tracks), and Superbike World Championship. 
+Then,
+Major Motorsport Events
+Some of the most iconic and prestigious events in motorsport are:
+Formula 1 Grand Prix: A series of races held worldwide, with the Monaco Grand Prix being a famous street circuit race.
+Indianapolis 500: An annual oval-track race in the United States, considered one of the three legs of the "Triple Crown of Motorsport" (along with the Monaco Grand Prix and 24 Hours of Le Mans).
+24 Hours of Le Mans: An endurance race in France, where teams of drivers push their cars to the limit for a full 24 hours.
+Daytona 500: The most prestigious race in the NASCAR calendar, often kicking off the season.
+And at the end,
+Governing Bodies
+Several international organizations oversee and govern motorsport competitions:
+Fédération Internationale de l'Automobile (FIA): The main governing body for four-wheeled motorsport worldwide, including Formula 1, the World Rally Championship, and Formula E.
+Fédération Internationale de Motocyclisme (FIM): The global governing body for two-wheeled motorsport, including MotoGP and Motocross.
