@@ -90,7 +90,7 @@ Live Projects and Competitions: Members get the opportunity to work on real-worl
 Networking Events: These clubs facilitate connections between students, alumni, and professionals. Networking is crucial for finding internships, jobs, and mentorship opportunities.
 Case Study Analysis: Members analyze the digital marketing strategies of successful and unsuccessful brands, helping them develop critical thinking and problem-solving skills.
 
-After this lecture, expert lecture by mrs.Shaffy makkar taught a lesson on millets super food.
+After this lecture, third lecturer  by expert lecturer mrs.Shaffy makkar taught a lesson on millets super food.
 
 Millets are a diverse group of small-seeded grasses that have been cultivated for thousands of years, primarily as cereal crops in parts of Asia and Africa. In recent years, they have gained significant attention and are often referred to as a "superfood" due to their exceptional nutritional profile and health benefits.  
 What Makes Millets a Superfood?
