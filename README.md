@@ -80,3 +80,11 @@ Governing Bodies
 Several international organizations oversee and govern motorsport competitions:
 Fédération Internationale de l'Automobile (FIA): The main governing body for four-wheeled motorsport worldwide, including Formula 1, the World Rally Championship, and Formula E.
 Fédération Internationale de Motocyclisme (FIM): The global governing body for two-wheeled motorsport, including MotoGP and Motocross.
+The second lectured by Dr Amrit kamar incharge of digital marketing club he taught that,A digital marketing club is a student or professional organization that focuses on the various aspects of digital marketing. The primary goal of such a club is to bridge the gap between academic theory and practical, real-world application. They provide a platform for members to gain hands-on experience, network with industry professionals, and stay current with the rapidly evolving digital landscape.
+Purpose and Activities
+The core purpose of a digital marketing club is to foster a community of individuals passionate about online marketing. To achieve this, clubs often organize a range of activities, including:
+Workshops and Training: These sessions cover specific skills like Search Engine Optimization (SEO), Pay-Per-Click (PPC) advertising, social media marketing, content creation, and email marketing. Members learn to use industry-standard tools like Google Analytics.
+Guest Lectures: The club invites professionals and experts from the industry to share their experiences and insights. This provides members with valuable exposure to current trends and career paths.
+Live Projects and Competitions: Members get the opportunity to work on real-world digital marketing campaigns for local businesses or college events. Competitions and case studies also allow them to apply their knowledge in a competitive setting.
+Networking Events: These clubs facilitate connections between students, alumni, and professionals. Networking is crucial for finding internships, jobs, and mentorship opportunities.
+Case Study Analysis: Members analyze the digital marketing strategies of successful and unsuccessful brands, helping them develop critical thinking and problem-solving skills.
