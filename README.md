@@ -21,8 +21,8 @@ Head of department BTech first year again congratulate of all students on addmis
 a golden chance to study here and 
 My first day of college was very motivational..
 
-#Day2
-##1august2025
+# Day2
+## 1august2025
 Firstly dr.priya darshani ji taught a expert lecture on universal human values 
 she said,
 Universal human values are principles and ideals that are generally accepted and respected by people across different cultures, religions, and backgrounds. They are seen as the foundation for a humane and civilized society. These values are thought to stem from an innate human conscience and reason, rather than being imposed by any specific authority or institution.
