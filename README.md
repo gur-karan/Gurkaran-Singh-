@@ -32,4 +32,14 @@ She also said that ,These values are believed to be essential for fostering mutu
 ## 4august 2025 
 session by the college students on clubs present in the college but they said about the causmic club of GNDE college ludhiana 
 they gave the knowledge to students how it works and helpful to others and by this club how they give happiness to others.
-Then second lecture by Dr pryea darshni ji on universal human values 2 
+
+Then second lecture by Dr Randhir Singh on conduct examination He said that the Conducting an examination refers to the process of administering a formal test or assessment. This includes all the steps and procedures taken to ensure the exam is fair, secure, and properly managed.
+Key Aspects of an Examination's Conduct
+Preparation: This involves creating the exam paper, establishing the exam schedule and seating arrangements, and ensuring all necessary materials (such as answer sheets and question booklets) are ready.
+Administration: During the exam, invigilators or proctors are responsible for maintaining order, preventing cheating, and enforcing the rules. They ensure that students have the correct materials, are seated in their assigned places, and follow the guidelines for things like permitted calculators or scratch paper.
+Security: This is a critical component and includes measures to prevent question papers from being leaked beforehand and to ensure the integrity of answer scripts after the exam is over.
+Rules and Regulations: A code of conduct is typically in place, which outlines what students are and aren't allowed to do. Violations, such as using unauthorized materials or communicating with other students, can lead to disciplinary action.
+Technology: With the rise of online learning, many examinations are now conducted using specialized software. These platforms provide a secure environment for students to take tests, often with features to monitor activity and prevent academic misconduct.
+In essence, the conduct of an examination is about the effective and fair execution of a test from start to finish.
+
+Then third lecture by Dr priya darshni Madam on universal human values 2 
