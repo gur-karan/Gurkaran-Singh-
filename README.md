@@ -20,3 +20,7 @@ Head of department BTech first year again congratulate of all students on addmis
                 So at the end .I think that I'm very lucky because you gave me 
 a golden chance to study here and 
 My first day of college was very motivational..
+#Day2
+##1august2025
+
+She also said that ,These values are believed to be essential for fostering mutual respect, trust, and cooperation among people. They provide a common ground for creating a better world for everyone.
