@@ -60,7 +60,7 @@ The course is typically taught through interactive discussions and practice sess
 
 # Day 4
 ## 5 August 2025
-First lecture by Mr.Dr.Gautam murri D-4 ME on Motor sport he said Motorsport, also known as motor sport, is a broad term for a group of competitive events that primarily involve the use of motorized vehicles. It encompasses a wide variety of disciplines, from high-speed racing on purpose-built circuits to off-road challenges and precision driving and then said its history that,The origins of motorsport can be traced back to the late 19th century. One of the first recognized competitive events was a "horseless carriage" contest organized by a French newspaper in 1894, featuring a road race from Paris to Rouen. Early motorsport was a way to showcase the capabilities of new automobiles. Over time, the sport became more organized, with the first Grand Prix race held in 1906 and the establishment of governing bodies to regulate competitions. Then,
+First lecture by Mr.Gautam murria D-4 ME on Motor sport he said Motorsport, also known as motor sport, is a broad term for a group of competitive events that primarily involve the use of motorized vehicles. It encompasses a wide variety of disciplines, from high-speed racing on purpose-built circuits to off-road challenges and precision driving and then said its history that,The origins of motorsport can be traced back to the late 19th century. One of the first recognized competitive events was a "horseless carriage" contest organized by a French newspaper in 1894, featuring a road race from Paris to Rouen. Early motorsport was a way to showcase the capabilities of new automobiles. Over time, the sport became more organized, with the first Grand Prix race held in 1906 and the establishment of governing bodies to regulate competitions. Then,
 Types of Motorsport
 Motorsport is incredibly diverse and can be categorized in several ways, including by the type of vehicle used, the terrain, or the competition format. Some of the most popular types include:
 Open-Wheel Racing: This is a class of racing where the wheels are not enclosed by the bodywork. The cars are typically purpose-built for racing. The most famous example is Formula 1 (F1), the highest class of single-seater auto racing in the world. Other examples include IndyCar and Formula E (for electric cars).
@@ -80,6 +80,7 @@ Governing Bodies
 Several international organizations oversee and govern motorsport competitions:
 Fédération Internationale de l'Automobile (FIA): The main governing body for four-wheeled motorsport worldwide, including Formula 1, the World Rally Championship, and Formula E.
 Fédération Internationale de Motocyclisme (FIM): The global governing body for two-wheeled motorsport, including MotoGP and Motocross.
+
 The second lectured by Dr Amit kamar incharge of digital marketing club he taught that,A digital marketing club is a student or professional organization that focuses on the various aspects of digital marketing. The primary goal of such a club is to bridge the gap between academic theory and practical, real-world application. They provide a platform for members to gain hands-on experience, network with industry professionals, and stay current with the rapidly evolving digital landscape.
 Purpose and Activities
 The core purpose of a digital marketing club is to foster a community of individuals passionate about online marketing. To achieve this, clubs often organize a range of activities, including:
@@ -88,6 +89,7 @@ Guest Lectures: The club invites professionals and experts from the industry to 
 Live Projects and Competitions: Members get the opportunity to work on real-world digital marketing campaigns for local businesses or college events. Competitions and case studies also allow them to apply their knowledge in a competitive setting.
 Networking Events: These clubs facilitate connections between students, alumni, and professionals. Networking is crucial for finding internships, jobs, and mentorship opportunities.
 Case Study Analysis: Members analyze the digital marketing strategies of successful and unsuccessful brands, helping them develop critical thinking and problem-solving skills.
+After this lecture expert lecturer by mrs.khaffia makkar taught a lesson on 
 Millets are a diverse group of small-seeded grasses that have been cultivated for thousands of years, primarily as cereal crops in parts of Asia and Africa. In recent years, they have gained significant attention and are often referred to as a "superfood" due to their exceptional nutritional profile and health benefits.  
 What Makes Millets a Superfood?
 Millets are packed with nutrients that are often found in lower quantities in other common grains like rice and wheat. Their "superfood" status comes from a combination of these factors:  
