@@ -42,4 +42,18 @@ Rules and Regulations: A code of conduct is typically in place, which outlines w
 Technology: With the rise of online learning, many examinations are now conducted using specialized software. These platforms provide a secure environment for students to take tests, often with features to monitor activity and prevent academic misconduct.
 In essence, the conduct of an examination is about the effective and fair execution of a test from start to finish.
 
-Then third lecture by Dr priya darshni Madam on universal human values 2 
+Then third lecture by Dr priya darshni Madam on universal human values 2 she said that "Universal Human Values 2" (UHV 2) is a mandatory foundation course in many Indian technical and professional colleges, often following an introductory course (UHV 1). The curriculum is designed to help students develop a holistic perspective on life and their profession. It focuses on self-exploration and understanding the harmony that exists at various levels of human existence.
+Here's a breakdown of the typical course content and objectives:
+Core Concepts
+The course is structured around the idea of "co-existence" and "harmony" and is often divided into several modules:
+Understanding the Human Being: This module delves into the distinction between the "self" (I) and the "body." It explores the different needs of each—happiness for the self and physical facilities for the body—and the relationship between them. The goal is for students to understand themselves better through a process of self-exploration.
+Harmony in the Family and Society: This part of the course focuses on human relationships. It proposes a set of nine universal values essential for building and maintaining relationships, with a strong emphasis on trust and respect as foundational. It examines the meaning of justice and the vision for a harmonious, undivided society.
+Harmony in Nature/Existence: Students explore the interconnectedness and mutual fulfillment among the four orders of nature (material, plant, animal, and human). The curriculum emphasizes the idea of existence as a state of co-existence and the role of humans in ensuring harmony with the natural world.
+Professional Ethics: The course concludes by applying these concepts to the professional world. It addresses how to use a holistic understanding of human values to define ethical human conduct and build a humane professional order. The focus is on using one's professional competence to contribute to a universal human order.
+Course Objectives
+The main objectives of UHV 2 are to help students:
+Develop a Holistic Perspective: To see the essential complementarity between "values" and "skills" in achieving sustained happiness and prosperity.
+Strengthen Self-Reflection: To engage in a process of self-exploration, verifying proposals about reality based on their own "natural acceptance" and experiential validation.
+Become Socially and Environmentally Responsible: To become more aware of their surroundings and their commitment to sustainable solutions, while keeping human relationships and nature in mind.
+Cultivate a Commitment to Action: To develop the courage and commitment to act on their understanding and live in accordance with these values.
+The course is typically taught through interactive discussions and practice sessions rather than a set of sermons or dogmatic rules. The goal is to facilitate a change in the student's worldview, moving beyond mere information transfer to a more qualitative transformation in their consciousness.
