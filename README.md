@@ -125,4 +125,30 @@ Health and Wellness: They work to ensure students have access to medical service
 Student Conduct: The DSW is often involved in matters of student discipline, working to maintain a safe and respectful campus environment. This may include being a member of the anti-ragging committee.  
 Liaison: They serve as a vital link between the student community and the university administration, communicating student needs and concerns to higher authorities.  
 Special Initiatives: They may develop and implement programs for the benefit of specific student groups, such as those with special needs or from disadvantaged backgrounds.
-In essence, the Dean of Student Welfare is a central figure in ensuring that students have a positive and enriching experience beyond their academic pursuits. Their work is focused on creating a nurturing and supportive atmosphere that helps students grow into well-rounded, responsible individuals.  
+In essence, the Dean of Student Welfare is a central figure in ensuring that students have a positive and enriching experience beyond their academic pursuits. Their work is focused on creating a nurturing and supportive atmosphere that helps students grow into well-rounded, responsible individuals.
+
+After this, lesson expert lecture by Mr.Manpreet Singh on fitness for engineer
+
+Maintaining fitness as an engineer can be challenging due to the demanding and often sedentary nature of the job. However, it's crucial for both physical and mental well-being. A successful fitness routine for an engineer typically involves a combination of structured workouts, diet management, and incorporating small movements throughout the workday.
+Here are some key aspects of a fitness plan for engineers:
+1. The Importance of a Structured Plan
+Treat it like a project: Engineers excel at planning and scheduling. The same approach should be applied to fitness. Schedule your workouts for a specific time and duration (e.g., 45-60 minutes, three to four times a week).
+Consistency over intensity: Start with manageable workouts and gradually increase the intensity. The goal is to make exercise a sustainable habit, not to burn out quickly.
+Find what you enjoy: Whether it's lifting weights, running, hiking, yoga, or playing a sport, you are more likely to stick with a routine you find enjoyable.
+2. Incorporating Movement into the Workday
+Take regular breaks: Use techniques like the Pomodoro method (work for 25 minutes, then take a 5-minute break) to ensure you are not sitting for long periods.
+Desk exercises and stretches: Simple exercises can be done at your desk to combat the effects of prolonged sitting. These include:
+Neck rotations and shoulder rolls: To relieve tension in the neck and shoulders.
+Seated leg raises: To strengthen your quads and hip flexors.
+Desk push-ups: Using the edge of your desk to work your chest and triceps.
+Stretching: Stretch your wrists, back, and hamstrings to improve flexibility.
+Walk more: Take the stairs instead of the elevator, park further away from the office, or go for a walk during your lunch break. Aim for a daily step count, like 10,000 steps.
+3. Nutrition and Diet
+Focus on healthy, balanced meals: A healthy diet is as important as exercise. Prepare meals in advance to avoid relying on unhealthy fast food or snacks.
+Hydration: Staying hydrated is key to maintaining energy and focus. Keep a water bottle at your desk and drink consistently throughout the day.
+Reduce sugar intake: Be mindful of sugary drinks and snacks, which can lead to energy crashes and weight gain.
+4. The Mind-Body Connection
+Stress reduction: Exercise is a powerful tool for managing stress, which is common in engineering. It can help clear your mind and improve problem-solving abilities.
+Improved focus and productivity: Regular physical activity can boost your energy levels and enhance your ability to concentrate, leading to better performance at work.
+Better sleep: A consistent fitness routine can improve the quality of your sleep, which is essential for recovery and overall well-being.
+By integrating these strategies, engineers can effectively counter the sedentary aspects of their job and build a healthy, active lifestyle that supports their professional and personal lives.
