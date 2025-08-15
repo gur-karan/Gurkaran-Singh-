@@ -4,7 +4,7 @@ Father's name:- Baljinder Singh Brar
 Branch:- Civil engineering 
 Registration NO:-2510556# 
 # Day-1
-## 30july2025
+## 30 july 2025
             Firstly Ms.Taran hold’s the stage and Heartiest congratulation 
 on being admitted to Guru Nanak 
 Dev Engineering College (GNDEC) ludhiana,and she also tells that GNDEC Will be celebrating its 70-year Golden Jubilee in the academic year 2025-26.then she invites a student to speech…
@@ -22,14 +22,14 @@ a golden chance to study here and
 My first day of college was very motivational..
 
 # Day2
-## 1august2025
+## 1 August 2025
 Firstly dr.priya darshani ji taught a expert lecture on universal human values 
 she said,
 Universal human values are principles and ideals that are generally accepted and respected by people across different cultures, religions, and backgrounds. They are seen as the foundation for a humane and civilized society. These values are thought to stem from an innate human conscience and reason, rather than being imposed by any specific authority or institution.
 She also said that ,These values are believed to be essential for fostering mutual respect, trust, and cooperation among people. They provide a common ground for creating a better world for everyone.
 
 # Day 3
-## 4august 2025 
+## 4 August 2025 
 session by the college students on clubs present in the college but they said about the causmic club of GNDE college ludhiana 
 they gave the knowledge to students how it works and helpful to others and by this club how they give happiness to others.
 
@@ -110,7 +110,7 @@ Foxtail Millet: Rich in iron and dietary fiber, beneficial for heart health.
 Barnyard Millet: Known for its high fiber and iron content.  
 Millets are also an environmentally friendly crop, as they are drought-tolerant and can grow in less fertile soil with minimal water, making them a sustainable choice for food security.  
 # Day 5
-## 6August2025 
+## 6 August 2025 
 A Dean of Student Welfare (DSW) is a senior administrative role in a university or college dedicated to the overall well-being and development of students. While specific duties can vary between institutions, the core function is to ensure a supportive environment that complements academic life.  
 Here's a breakdown of the key roles and responsibilities:
 1. Student Support and Guidance:
