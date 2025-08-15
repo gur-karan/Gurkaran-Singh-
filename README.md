@@ -27,3 +27,9 @@ Firstly dr.priya darshani ji taught a expert lecture on universal human values
 she said,
 Universal human values are principles and ideals that are generally accepted and respected by people across different cultures, religions, and backgrounds. They are seen as the foundation for a humane and civilized society. These values are thought to stem from an innate human conscience and reason, rather than being imposed by any specific authority or institution.
 She also said that ,These values are believed to be essential for fostering mutual respect, trust, and cooperation among people. They provide a common ground for creating a better world for everyone.
+
+# Day 3
+## 4august 2025 
+session by the college students on clubs present in the college but they said about the causmic club of GNDE college ludhiana 
+they gave the knowledge to students how it works and helpful to others and by this club how they give happiness to others.
+Then second lecture by Dr pryea darshni ji on universal human values 2 
