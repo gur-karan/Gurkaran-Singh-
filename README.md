@@ -170,3 +170,24 @@ Overcoming Challenges: Through his own experiences, he provides motivational ins
 4. Role in NCC (National Cadet Corps)
 As the Group Commander of NCC Group, Jammu, he has been actively involved in mentoring and inspiring young NCC cadets. His talks to cadets focus on the values of leadership, integrity, and patriotism. He emphasizes the critical role of instructors in shaping the future leaders of the country.  
 In summary, a lecture by Brigadier P.S. Cheema is likely to be a blend of strategic military insights, motivational lessons on leadership and teamwork, and a strong emphasis on the core values of the armed forces, all of which are highly relevant and inspiring for both military and civilian audiences.
+# Day 6
+## 7 August 2025 
+
+first lecture by Dr.lakhvir Singh Grewal taught a lesson on CML and give advice to the students how to succeed in our life and other motivational speech to the students.
+after this lecture Dr.jasvir Singh Grewal incharge of NCC .The National Cadet Corps (NCC) is the youth wing of the Indian Armed Forces. It's a voluntary organization open to high school and college students, and it operates under the Ministry of Defence. The NCC's main goal is to develop disciplined and patriotic citizens by providing basic military training in small arms and drills.
+How to Join the NCC
+The process to join the NCC varies slightly depending on whether you're a junior or senior cadet, but the general steps are similar.
+Eligibility: To join, you must be a student at a school or college that has an NCC unit. The age for the Junior Wing (JW/JD) is typically 13 to 18 years, and for the Senior Wing (SW/SD) it's up to 26 years. You'll also need to meet certain physical and medical fitness standards.
+Application: If your school or college has an NCC unit, you can get an application form from the institution. If your institution doesn't have a unit, you may be able to join an "open unit" in your area.
+Selection: The selection process often involves an interview and may include a physical fitness test or a written exam. The NCC officers will assess your interest and aptitude for the program.
+Training: Once selected, you'll be enrolled as a cadet and begin attending training sessions, which include drills, parades, and other activities.
+Benefits of Joining the NCC
+Being an NCC cadet offers a wide range of benefits that extend beyond military training.
+Personality Development: NCC training focuses on building character, discipline, confidence, and leadership qualities. You'll learn skills like teamwork, problem-solving, and communication.
+Career Opportunities: NCC cadets, especially those who earn the 'B' and 'C' certificates, get an edge in recruitment for various government jobs, including the armed forces, paramilitary forces, and state police. Some vacancies are even reserved for 'C' certificate holders in the Indian Army and Navy.
+Financial and Educational Incentives: Cadets are often eligible for scholarships and financial assistance. You may also get special quotas or bonus marks in certain competitive exams and educational courses.
+Adventure and Social Activities: The NCC organizes a variety of activities, including trekking, mountaineering, and national integration camps, which allow you to meet people from different parts of the country and experience diverse cultures.
+The motto of the NCC is "Unity and Discipline," and its training aims to instill these values in young citizens to prepare them for a better future, whether they choose a career in the armed forces or not. 
+
+so that's the last lecture of induction program of college.
+A college induction program, often called an orientation, is a crucial part of a student's transition to higher education. It's much more than just a welcome event; it's a structured program designed to help new students adjust to their new environment, understand the institution's culture, and prepare them for academic and social success. In essence, a college induction program is a strategic initiative that sets the foundation for a student's successful college journey, both academically and personally. It's a vital step in transforming new entrants into confident and engaged members of the college community.![1000040310](https://github.com/user-attachments/assets/3e7126d2-211f-4052-ab0f-d5b9d6cb4391)
